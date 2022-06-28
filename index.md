@@ -1,5 +1,4 @@
-suck
-on
-my
-nuts!!!
+địt nhau
+
+trên ngã
 
