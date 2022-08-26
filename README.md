@@ -4,4 +4,6 @@ My novel translation projects will be uploaded here. Hope I can make it far into
 
 Mấy dự án dịch tiểu thuyết tôi sẽ đăng ở đây. Mong là trước khi bỏ cuộc hẳn tôi có thể dịch được kha khá. Những dự án này thực ra không phải là để người khác đọc, nó là để tôi rèn luyện từ vựng tiếng Anh. Đa số người đang đọc mấy dòng chữ này chắc còn chẳng phải là người Việt đâu! Với cả, chắc là phải lâu sau tôi mới bắt đầu đăng ở đây.
 
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+[link test](https://youtu.be/Z-48u_uWMHY)
