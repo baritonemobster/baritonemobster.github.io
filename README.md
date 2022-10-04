@@ -1,9 +1,11 @@
-# Daiko's novel translations
-
-My novel translation projects will be uploaded here. Hope I can make it far before quitting. These projects aren't really for people to read by the way, they're mostly for sharpening my English vocabulary. Most of the people reading this aren't even Vietnamese! Anyway, it will definitely take a while before I actually upload something up here.
-
-Mấy dự án dịch tiểu thuyết tôi sẽ đăng ở đây. Mong là trước khi bỏ cuộc hẳn tôi có thể dịch được kha khá. Những dự án này thực ra không phải là để người khác đọc, nó là để tôi rèn luyện từ vựng tiếng Anh. Đa số người đang đọc mấy dòng chữ này chắc còn chẳng phải là người Việt đâu! Với cả, chắc là phải lâu sau tôi mới bắt đầu đăng ở đây.
+# the whole AdaShima novel series translated into Vietnamese
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-im definitely working on something. trust me.
+Yes, I'm going to do it. This project will take years to finish, but I love the series way too much to just not do it. 
+
+I'm going to upload the first volume here as soon as I finish translating all of it. I'm probably going to finish it on January. Stay tuned!
+
+(Note: There is already a Vietnamese translation for the first three volumes, but I am still going to translate the whole thing FROM SCRATCH. Don't worry about plagiarism.)
+
+Progress: Volume 1, chapter 2.
