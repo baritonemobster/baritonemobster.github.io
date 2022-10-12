@@ -8,4 +8,4 @@ I'm uploading the first volume here as soon as I finish translating all of it. I
 
 (Note: There is already a Vietnamese translation for the first three volumes, but I am still going to translate the whole thing FROM SCRATCH. Don't worry about plagiarism.)
 
-Progress: Volume 1, chapter 2.
+Progress: Volume 1, chapter 3.
